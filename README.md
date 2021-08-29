@@ -8,8 +8,8 @@
 </a></p>
 
 <h3><b><i>🧚🏻‍♂️ About :</i></b></h3>
-<li> ✨🧛🏻‍♂ <i>If Anyone Copy or Trying to Edit my Scripts,Then I will Fuckkk You'r Mom's Pussy</i></li>
-<li> 💛🧞‍♂️ <i>We Are '' Anonymous ථ ''
+<li> ✨ <i>If Anyone Copy or Trying to Edit my Scripts,Then I will Fuckkk You'r Mom's Pussy</i></li>
+<li> 💛 <i>We Are '' Anonymous ථ ''
  Not a '' Comedian '' Remembered It!</i></li>
 <li> 🤍 <i>A Horny Sperm from '' Depressed and Unloyal '' Generation ථ</i></li>
 
@@ -25,4 +25,4 @@
 
 <h3><b><i>🥀 Contact: Evan Haxxxor ථ :</i></b></h3>
 <a href="https://www.facebook.com/E826.A5.M24683.I7326.O33icia55/"><img align="left" title="Facebook" alt="Facebook" width="30px" src="h"/>https://i.ibb.co/Xy2xLgV/Facebook-logo.png</a>
-<a href="https://www.facebook.com/E826.A5.M24683.I7326.O33icia55/"><img align="left" title="Messenger" alt="Messenger" width="30px" src="https://i.ibb.co/ZKXsK9m/images.jpg" /></a>
+
