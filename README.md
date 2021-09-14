@@ -19,10 +19,15 @@
 <h3><b><i>🏆 Profile View :</i></b></h3>
 <a href="https://github.com/Evan-Al-Mahmud-Irfan"><img height="25" title="Counter" src="https://komarev.com/ghpvc/?username=sacrobrent&color=blueviolet&style=flat-square"></a>
 
-<h3><b><i>🥀 Contact: Evan Al Mahmud Irfan ථ :</i></b></h3>
-<a href="https://www.facebook.com/Evan.Al.Mahmud.Irfan.Official.xDD/"><img align="left" title="Facebook" alt="Facebook" width="30px" src="https://i.ibb.co/Xy2xLgV/Facebook-logo.png" /></a>
-<a href="https://m.me/facebook.com/E826.A5.M24683.I7326.O33icia55/"><img align="left" title="Messenger" alt="Messenger" width="30px" src="https://i.ibb.co/ZKXsK9m/images.jpg" /></a>
+<br>
+<h3> It Provide only for legal activities. If You Misuse it we are not responsible for this</h3>
+<h3><b><i>🖥️ Contact Info </i></b></h3>
+<li>  <i><a href="https://www.facebook.com/Evan.Al.Mahmud.Irfan.Official.xDD/">Our Facebook Page </a></i></li>
+<li>  <i><a href="https://www.facebook.com/groups/288654882980619/?ref=share">Our Facebook Community</a></i></li>
+<li>  <i><a href="https://www.youtube.com/channel/UC6dFZt9XF245WWnF_LsPzRQ">My Youtube Channel</a></i></li>
+<li>  <i><a href="https://evanalmahmudirfan.blogspot.com/?m=1">Our Blogsite</a></i></li>
 
-<h3><b><i>🥀 Contact: Evan Haxxxor ථ :</i></b></h3>
-<a href="https://www.facebook.com/E826.A5.M24683.I7326.O33icia55/"><img align="left" title="Facebook" alt="Facebook" width="30px" src="h"/>https://i.ibb.co/Xy2xLgV/Facebook-logo.png</a>
-
+<br>
+<h3><b><i>✨ Developers :</i></b></h3>
+<li> <i><a href="https://www.facebook.com/Hey.Son.Its.Your.Papppa.E8A6.A5.M2H6U3.I7F2N">Evan Al Mahmud Irfan (EVAN HAXXXOR ථ)</a></i></li>
+<li>  <i><a href="https://www.facebook.com/E826.A5.M24683.I7326.O33icia55">Md. Ismail Hosen (HornySperm)</a></i></li>
